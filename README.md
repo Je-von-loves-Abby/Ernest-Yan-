@@ -1,2 +1,2 @@
 # Ernest-Yan-
-Welcome to my profilr
+Welcome to my profile
